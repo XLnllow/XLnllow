@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @XLnllow
 - 👀 I’m interested in .............
 - 🌱 I’m currently learning nothin
-- 💞️ I’m looking to collaborate on nothin
+- 💞️ I’m looking to collaborate on/with nothin
 - 📫My disc is "e..#8760"
 
 <!---
